@@ -18,4 +18,8 @@
                                              |                                                  |
                                              \_________________________________________________/
                                                      \___________________________________/
-                                                   
+
+
+
+                                                📷https://www.instagram.com/joako.buh/
+                                                💼https://www.linkedin.com/in/joaquin-buhid-67026b342/
